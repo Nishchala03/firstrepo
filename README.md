@@ -1,2 +1,3 @@
 # firstrepo
-HI I'M nishchala.  I'M from india.
+I'M nishchala. 
+Park avenue,Mo.
